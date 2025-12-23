@@ -17,7 +17,7 @@
 
 - 📫 Reach me at: **rishikeshram88@gmail.com**
 
-- 📄 Know more about my work: [View Resume](https://drive.google.com/file/d/1BfuBD68lJB5TdL9rTWxGKR7lnNn20gRH/view?usp=drive_link)
+
 
 ---
 
